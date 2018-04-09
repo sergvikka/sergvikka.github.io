@@ -1,1 +1,0 @@
-# sergvikka.github.io
